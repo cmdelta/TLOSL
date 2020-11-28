@@ -9,6 +9,6 @@ New study result will be published here at once.
 
 New raw data will be publish at AGU.
 
-NO DATA OR FIGURE COULD BE CITED WITHOUT AUTHER'S PERMISSION.
+NO DATA OR FIGURE COULD BE CITED WITHOUT AUTHOR'S PERMISSION.
 
 ALL RIGHTS RESERVERED.
